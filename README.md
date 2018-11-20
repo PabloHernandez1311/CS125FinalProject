@@ -1,3 +1,3 @@
 # CS125FinalProject
 
-yurrrrrr i hate apple sauce
+i hate apple sauce
